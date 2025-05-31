@@ -1,0 +1,1 @@
+# Ghazi-quiz-pratikum-7
